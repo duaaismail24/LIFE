@@ -4,10 +4,13 @@
 
 
 Our life its all about our thoughts and minds, its like a machine the body is the physical being but the actions are controling by the mind, and this mean if you are developing your minds and thoughts you are proving and proving your actions .
-our minds need practicing and effort and the succes will be leading to you .
-###no pain no gain
+our minds need practicing and effort and the succes will be leading to you
 
-*And always remember your self :*
+
+
+### NO PAIN NO GAIN
+
+**And always remember your self :**
 1. work hard.
 2. be patient. 
 3. you can.
