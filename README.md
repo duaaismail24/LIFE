@@ -1,4 +1,4 @@
- ##### **GROWTH MINDSET**
+ ###### **GROWTH MINDSET**
 
 
 
