@@ -19,3 +19,8 @@ our minds need practicing and effort and the succes will be leading to you
 [whats_thinking_about](https://mawdoo3.com/%D9%85%D8%A7_%D9%87%D9%88_%D8%A7%D9%84%D8%AA%D9%81%D9%83%D9%8A%D8%B1_%D8%9F)
 
 ![image](https://modo3.com/thumbs/fit630x300/8534/1437544796/%D9%85%D8%A7_%D9%87%D9%88_%D8%A7%D9%84%D8%AA%D9%81%D9%83%D9%8A%D8%B1_%D8%9F.jpg)
+
+
+
+I'm Duaa ALoran, studied Accounting in TTU and graduated on January, Intrested in programming and how to make a web pages,to contact with me here is my githubpages 
+[DUAA_ISMAIL](https://github.com/duaaismail24)
