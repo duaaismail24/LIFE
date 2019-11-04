@@ -24,3 +24,7 @@ our minds need practicing and effort and the succes will be leading to you
 
 I'm Duaa ALoran, studied Accounting in TTU and graduated on January, Intrested in programming and how to make a web pages,to contact with me here is my githubpages 
 [DUAA_ISMAIL](https://github.com/duaaismail24)
+
+
+duaa ismail aloran
+is the best
